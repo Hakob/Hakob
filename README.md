@@ -4,9 +4,8 @@
 - 👀 I’m interested in sharing my knowledge with other people 🧐
 - 🔭 I’m currently working on a project called Myself 😎
 - 🌱 I’m currently learning Leadership skills 💪
-- 💬 Ask me about fundamental knowledge
-- 📫 How to reach me: tg.me@hakobarakelyan
-- 😄 Pronouns: Jacob
+- 💬 Ask me about fundamental knowledge 🧩
+- 📫 How to reach me: tg.me@hakobarakelyan ☭
 - ⚡ Fun fact: I can walk endlessly 😅
 
 
