@@ -7,6 +7,7 @@
 - 💬 Ask me about fundamental knowledge 🧩
 - 📫 How to reach me: tg.me@hakobarakelyan ☭
 - ⚡ Fun fact: I can walk endlessly 😅
+- 🤓 Continuously improving my knowledge and doing [research](https://www.researchgate.net/profile/Hakob-Arakelyan) 📖
 
 
 <!---
