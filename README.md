@@ -5,7 +5,7 @@
 - 🔭 I’m currently working on a project called Myself 😎
 - 🌱 I’m currently learning Leadership skills 💪
 - 💬 Ask me about fundamental knowledge 🧩
-- 📫 How to reach me: tg.me@hakobarakelyan ☭
+- 📫 This is how to reach [me](https://t.me/hakobarakelyan#☭)
 - ⚡ Fun fact: I can walk endlessly 😅
 - 🤓 Continuously improving my knowledge and doing [research](https://www.researchgate.net/profile/Hakob-Arakelyan) 📖
 
