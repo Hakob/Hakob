@@ -8,6 +8,7 @@
 - 📫 This is how to reach [me](https://t.me/hakobarakelyan#☭)
 - ⚡ Fun fact: I can walk endlessly 😅
 - 🤓 Continuously improving my knowledge and doing [research](https://www.researchgate.net/profile/Hakob-Arakelyan) 📖
+- Follow me on [LinkedIn](https://www.linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=hakobarakelyan)
 
 
 <!---
